@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PriAnime
-- 👀 I’m interested in studying, gaming, anime and food 
+- 👀 I’m interested in studying languages, memes,fps/tps games, anime and food 
 - 🌱 I’m currently learning nothing...
 - 💞️ I’m looking to collaborate on graphic designing
 - 📫 How to reach me ...
